@@ -1,2 +1,2 @@
-# ©Copyright by Outliers Team
+# Copyright by Outliers Team
 [⚠️] Not allowed to be bought and sold
