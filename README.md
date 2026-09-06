@@ -1,2 +1,3 @@
 # OUTLIERS
-Free prompts will be shared here
+©Copyright by Outliers Team
+[⚠️] Not allowed to be bought and sold
